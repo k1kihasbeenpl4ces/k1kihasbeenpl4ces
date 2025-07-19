@@ -15,3 +15,7 @@ I'm in the *Fandoms* ;; **TF2** , **Orison** , **Regretevator** , *Forsaken* , *
 I'm usually in ;; **Lab roleplays, Infections, Hangouts, GTCs, and OC Makers** *!!* But sometimes I may just be chillin' at docks *!*
 
 Kins *;;*  Heavy, Scout, Poob, Till, Luka, Sonnet, 007n7, Taph, and Genesis *!*
+
+I host *Heavenly Repenting Foundations* ! ^_^
+
+**Ships** I enjoy lots! ;; Heavymedic , Ivantill , Mizisua , Pizzaburger , 7noli , Hacknslash , n more *!!*
