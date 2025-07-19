@@ -11,3 +11,7 @@ I prefer **TONE TAGS** as it's hard to tell how you mean your words when somethi
 **PLEASE ASK** before friending me and do not cover me for a long period of time.
 
 I'm in the *Fandoms* ;; **TF2** , **Orison** , **Regretevator** , *Forsaken* , **Alien Stage** , and __more__ *!*
+
+I'm usually in ;; **Lab roleplays, Infections, Hangouts, GTCs, and OC Makers** *!!* But sometimes I may just be chillin' at docks *!*
+
+Kins *;;*  Heavy, Scout, Poob, Till, Luka, Sonnet, 007n7, Taph, and Genesis *!*
