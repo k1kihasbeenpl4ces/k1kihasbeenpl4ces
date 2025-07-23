@@ -37,11 +37,17 @@ I host *Heavenly Repenting Foundations* ! ^_^
 
                       **YUME's**
 **Non-sharing** ;; 007n7 , John Doe , Builderman , Hermes , Telemachus
-**Selective** ;; Heavy , Telamon , Thomas , Till , Luka , Odysseus 
+
+
+**Selective** ;; Heavy , Telamon , Thomas , Till , Luka , Odysseus
+
+ 
 **Sharing** ;; ehh idk :/
 
 >
 
     **Age's**
 *int* if 14+
+
+
 *dni* if -13 or 20+
