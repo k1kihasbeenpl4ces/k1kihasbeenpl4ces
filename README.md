@@ -1,4 +1,5 @@
-![91825757500a57e7278253382ccbd8f6](https://github.com/user-attachments/assets/5a5761bc-cc9b-4d3b-a25e-6407290c66ba)
+![a176299abc2dd4258a5201be2d62d354](https://github.com/user-attachments/assets/ba455628-eb96-472b-b0b0-b32c66b8e5b9)
+
 
 
 Heya !! I go by Kiki , Poob , Alter or Misha ! -- Mainly Poob or Kiki though! :p
