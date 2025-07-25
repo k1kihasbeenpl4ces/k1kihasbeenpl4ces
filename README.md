@@ -6,6 +6,8 @@ Heya !! I go by Kiki , Poob , Alter or Misha ! -- Mainly Poob or Kiki though! :p
 
 I'm mainly ALL INTERACT AND C+H !! -- Feel free to come say hi to me I'm usually wearing tf2 cosplays, ocs, or roblox cosplays . . ! -- I'm also usually chilling with my friends !
 
+I am a fictokin with Odysseus ! 
+
 Please **do not interact** if you are in the **DANDY'S WORLD FANDOM** . . . this also means *proshippers* . I do not want to interact with you , please move away from me if you are either of these -- despite those two I really do not have a **DNI list** .
 I prefer **TONE TAGS** as it's hard to tell how you mean your words when something is going on -- if I say you're being rude that means I misinterpetted you and I apologize !
 **ALSO** if you hate ships I like **DO NOT** interact with me.
@@ -23,7 +25,7 @@ I'm usually in ;; **Lab roleplays, Infections, Hangouts, GTCs, and OC Makers** *
 
 >
 
-Kins *;;*  Heavy, Scout, Poob, Till, Luka, Sonnet, 007n7, Taph, and Genesis *!*
+Kins *;;*  Heavy, Odysseus, Telemachus, Hermes, Scout, Poob, Till, Luka, Sonnet, 007n7, Taph, and Genesis *!*
 
 >
 
