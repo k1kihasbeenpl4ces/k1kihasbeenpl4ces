@@ -2,54 +2,50 @@
 
 
 
-Heya !! I go by Kiki , Poob , Alter or Misha ! -- Mainly Poob or Kiki though! :p
+* 。 • ˚ ˚ ˛ ˚ ˛ • 。* 。° 。* 。 • ˚ * 。 • ˚ ˚ ˛ ˚ ˛ 
 
-I'm mainly ALL INTERACT AND C+H !! -- Feel free to come say hi to me I'm usually wearing tf2 cosplays, ocs, or roblox cosplays . . ! -- I'm also usually chilling with my friends !
+◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ 
 
-I am a fictokin with Odysseus ! 
-
-Please **do not interact** if you are in the **DANDY'S WORLD FANDOM** . . . this also means *proshippers* . I do not want to interact with you , please move away from me if you are either of these -- despite those two I really do not have a **DNI list** .
-I prefer **TONE TAGS** as it's hard to tell how you mean your words when something is going on -- if I say you're being rude that means I misinterpetted you and I apologize !
-**ALSO** if you hate ships I like **DO NOT** interact with me.
-Twitter users **IWEC** I have severe trauma from Twitter.
-
-**PLEASE ASK** before friending me and do not cover me for a long period of time.
-
-                                  ╭──── · · ୨୧ · · ────╮
-
-I'm in the *Fandoms* ;; **Epic: The Musical** , **TF2** , **Orison** , **Regretevator** , *Forsaken* , **Alien Stage** , and __more__ *!*
-
->
-
-I'm usually in ;; **Lab roleplays, Infections, Hangouts, GTCs, and OC Makers** *!!* But sometimes I may just be chillin' at docks *!*
-
->
-
-Kins *;;*  Heavy, Odysseus, Telemachus, Hermes, Scout, Poob, Till, Luka, Sonnet, 007n7, Taph, and Genesis *!*
-
->
-
-I host *Heavenly Repenting Foundations* ! ^_^
-
->
-
-**Ships** I enjoy lots! ;; Heavymedic , Ivantill , Mizisua , Pizzaburger , 7noli , Hacknslash , n more *!!*
-
->
-
-                      **YUME's**
-**Non-sharing** ;; 007n7 , John Doe , Builderman , Hermes , Telemachus
+════ ʚ **KIKI** , odysseus , **POOB**  ɞ ════
 
 
-**Selective** ;; Heavy , Telamon , Thomas , Till , Luka , Odysseus
+✦ age ; **14** ₊˚.༄
 
- 
-**Sharing** ;; ehh idk :/
+✦ 𝐩𝐫𝐨𝐧𝐨𝐮𝐧s •₊ ❥︎ ❏ ❜ *they*/he
 
->
+▼ sexuality *'* aromantic
 
-    **Age's**
-*int* if 14+
+▲ gender ; - > *ftm - nonbinary* 
+
+ ﹒Likes:          ♥ ・ painting, drawing, listening to music, singing, cats, marine wildlife/wildlife, nature, and etc :P
+﹒Dislikes:        //  ・˙˚ z00ph1les, p3dofiles, and anything under that catergory
+
+  
+* 。 • ˚ ˚ ˛ ˚ ˛ • 。* 。° 。* 。 • ˚ * 。 • ˚ ˚ ˛ ˚ ˛ 
+
+◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤
+
+════ ʚ *fandoms* ɞ ════
 
 
-*dni* if -13 or 20+
+✦ - > 🎮 ;: TF2 - Let Him Go - Forsaken - Orison - Call of Duty - The Walking Dead - The Last of us - Leap of Faith - Jims Computer - Die of Death (kind of) - and more . . . *!*
+
+
+✦ - > 📹 ;: The Walking Dead - All of us are Dead - The Last of us - 28 ___ later trilogy - Jurassic park movies - and more . . . *!*
+
+
+✦ - > 🎵 ;: Hamilton - Epic: The Musical - Heathers - __I'm still getting into musicals__
+
+
+* 。 • ˚ ˚ ˛ ˚ ˛ • 。* 。° 。* 。 • ˚ * 。 • ˚ ˚ ˛ ˚ ˛ 
+
+◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤
+
+════ ʚ *DNI* ɞ ════
+
+▼ - > Do NOT interact with me if you're apart of the DANDYS WORLD fandom . . . I respectfully, do NOT like you guys . I have bad experience with you guys .
+▼ - > Do NOT interact with me if you're one of THOSE doublefedora / forsaken fans . I like Doublefedora but if you make it cringey and 'unenjoyable' I won't HESITATE to block/hide you .
+
+
+▼ - > Never interact with me if I have offtab/iwc/iwec/iwvec/dni/dniuf/dniuc/dniucf in my name . . this likely means I don't want to be bothered . If you couldn't get the hint . Even if it's just a simple whisp saying ' ____ mentioned ?! ' . Personally - it's annoying , and especially if I'm busy with chores , homework , or JROTC set practices .
+▼ - > Do NOT join cuddle piles with my friends . I DO NOT KNOW YOU . WE DO NOT KNOW YOU . YOU didn't ask for PERMISSION . It makes me and my friends uncomfortable sometimes - I also may seem a bit rude , my apologies beforehand . 
