@@ -67,13 +67,3 @@
 ✦ - > 🎵 ;: Hermes, Odysseus, Hamilton, Angelica, Calypso, Circe, and so on . . . !
 
 
-* 。 • ˚ ˚ ˛ ˚ ˛ • 。* 。° 。* 。 • ˚ * 。 • ˚ ˚ ˛ ˚ ˛ 
-
-◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤
-
-════ ʚ *Schedule* ɞ ════
-
-- Reporting . . starting July 29th, 2025 I wont be active . I have a packed highschool schedule and my mom is really strict on my internet time . There might be times we're you see me - there might not . I'll most likely be Dniucf/read gith/offtab if so . . ! My internet also might cut off for months sorry to anyone I met out there who knew me well - lol . 
-
-
-. . This is me just asking to be nice to me as I'm verrrrrrrrrry sensitive this past few months - I may have mood swings verrry often . Especially with my alters . There may be times we're we aren't their completely . . our apologies . We also prefer tone tags - we have undiagnosed autism . I also space out ALOOOOOT . . I'm also with friends most times - if their not offline . . !
