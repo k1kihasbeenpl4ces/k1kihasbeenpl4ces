@@ -6,3 +6,6 @@
 . ݁　⊹ ࣪ ˖　　　 ࣪ ˖
 　　.  ݁　　　  ݁
 　　. 
+                
+
+          *. . . You had a dream, you want it better. You we're sick of all the holes on your sweater.*
