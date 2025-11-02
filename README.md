@@ -7,7 +7,7 @@
             
     
 
-*⁺ 　 . . . . You had a dream, you want it better. You we're sick of all the holes on your sweater. ⁺ 　 .*
+*⁺ 　 . . . . my soldier boy , oh my little soldier boy. i'll be true to you. ⁺ 　 .*
 
                            
 
@@ -15,5 +15,7 @@
 ⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
 
 
+
+> call me *alfred* unless your a moot/close friend ; call me *kiki* !
 
 **WIP**
