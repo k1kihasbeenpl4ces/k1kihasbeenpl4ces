@@ -16,6 +16,13 @@
 
 
 
-> call me *alfred* unless your a moot/close friend ; call me *kiki* !
+> hio call me avid *(or alfie)* !
 
-**WIP**
+> minor - USAxGERMAN 
+
+⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆ **BYI**
+⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
+
+
+
+**WIP, AGAIN. SORRY.**
