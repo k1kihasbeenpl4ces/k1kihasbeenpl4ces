@@ -7,7 +7,7 @@
             
     
 
-*⁺ 　 . . . . my soldier boy , oh my little soldier boy. i'll be true to you. ⁺ 　 .*
+*⁺ 　 . . . . but I became a mama's boy for Andrew in Drag. ⁺ 　 .*
 
                            
 
@@ -73,3 +73,11 @@
 > 🎶 || AvidMC, Epic: the Musical, the Crane Wives, Madilyn Mei, Mother Mother, The Buttress, Gigi Perez, Chappel Roan, and more.
 
 > 🎞️ || The Walking Dead, Stranger Things, Vampires SMP (and some more), Boots, All of us are Dead, All Quiet on the Western Front, 1917, and more.
+
+
+
+
+
+
+
+> - "I'll make sure to kill them for you.''  v!scott
