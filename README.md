@@ -18,7 +18,9 @@
 
 > hio call me avid *(or alfie)* !
 
-> minor - USAxGERMAN 
+> minor ;; **14** - USAxGERMAN 
+
+> aromantic / mlm - transmasc / non-binary
 
 
 
