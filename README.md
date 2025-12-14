@@ -99,5 +99,4 @@
 
 
 
-
-> - "I'll make sure to kill them for you.''  v!scott
+ > "I'll make sure to kill them for you.''  v!scott
