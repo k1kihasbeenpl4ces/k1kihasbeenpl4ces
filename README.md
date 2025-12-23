@@ -44,25 +44,12 @@
 
 
 
-⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆ **PROSHIPPING**
-⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
-
-
-
-> Can you be a **Proshipper** and interact with me?
-
-> Personally I don't mind, as long as if you don't start anything, aren't in any previous drama - no weird backgrounds and no pedophilic/toxicity acts towards me. I also wouldn't enjoy hearing you talk about what you ship, but I truly do not mind hanging out with you if you respect my boundaries, and I would respect yours and yada yada.
-
-> Making this clear - I do not support actions of **Proshippers** but I can tolerate them, interact with me if you want - but be wary, as I can easily grow tense around proshippers at times.
-
-
-
 ⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆ **DNI**
 ⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
 
 
 
-> D--dys W-rld fans . **THIS FANDOM IS HVY IWVECUCF**
+> Dandys world fans, this fandom is **iwcuf/cf**
 
 > Problematic people , I do **NOT** want anything to do with you nor you're drama , thanks!
 
