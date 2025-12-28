@@ -8,7 +8,7 @@
             
     
 
-*⁺ 　 . . . . father its me , MICHAEL . ⁺ 　 .*
+*⁺ 　 . . . .  . ⁺ 　 .*
 
                            
 
@@ -17,7 +17,7 @@
 
 
 
-> hio call me **mike** , **alfie** , or avid !
+> hio call me **alfred** , **alfie** , or avid !
 
 > minor ;; **14**
 
@@ -49,7 +49,7 @@
 
 
 
-> Dandys world fans, this fandom is **iwcuf/cf**
+> Dandys world fans, this fandom is **iwc**
 
 > Problematic people , I do **NOT** want anything to do with you nor you're drama , thanks!
 
@@ -57,7 +57,7 @@
 
 > People who ragebait because its "Fun! ^_^" surely there are other things to do!
 
-> People who join raids.
+> People who join/collaborate w/ raids.
 
 
 
@@ -86,4 +86,4 @@
 
 
 
- > "I'll make sure to kill them for you.''  v!scott
+ > "I'll make sure to kill them for you.''  -  v!scott , Vampires
