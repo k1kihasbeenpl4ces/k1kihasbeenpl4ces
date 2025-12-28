@@ -8,7 +8,7 @@
             
     
 
-*⁺ 　 . . . .  . ⁺ 　 .*
+*⁺ 　 . . . .  Ang beer na 'to o ang pag-ibig mo? . ⁺ 　 .*
 
                            
 
@@ -19,7 +19,7 @@
 
 > hio call me **alfred** , **alfie** , or avid !
 
-> minor ;; **14**
+>  **14** ;; american ;; CST 
 
 > aromantic / mlm - transmasc / non-binary
 
