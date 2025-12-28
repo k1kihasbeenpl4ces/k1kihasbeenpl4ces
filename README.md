@@ -17,7 +17,7 @@
 
 
 
-> hio call me **alfred** , **alfie** , or avid !
+> hio call me **alfred** , **alfie** , **kiki** , *skin names* or *avid* !
 
 >  **14** ;; american ;; CST 
 
@@ -59,7 +59,7 @@
 
 > People who join/collaborate w/ raids.
 
-
+> do not call me / refer me as poob
 
 ⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆ **INSPO? COPYING?**
 ⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
