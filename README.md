@@ -18,7 +18,7 @@
 
 
 
-> hio call me **alfred** , **alfie** , **kiki** , *skin names* or *avid* !
+> hio call me **alfred** , **alfie** , **kiki** , **fluixon** , **flux** , *skin names* or *avid* !
 
 >  **14** ;; american ;; CST 
 
