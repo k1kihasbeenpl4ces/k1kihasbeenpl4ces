@@ -1,5 +1,6 @@
 
-![1000066667](https://github.com/user-attachments/assets/a94dba80-05ac-4b01-a42a-4dded5605ead)
+![399](https://github.com/user-attachments/assets/7aeb4d40-3cbb-488e-9df0-996a0d6a86ac)
+
 
 
    ════════════════════
@@ -83,7 +84,6 @@
 
 
 
+![404](https://github.com/user-attachments/assets/2ac753bc-9719-4744-b4e5-2f7e6a661d8e)
 
-
-
- > "I'll make sure to kill them for you.''  -  v!scott , Vampires
+Fluixon was slain by Saparata
