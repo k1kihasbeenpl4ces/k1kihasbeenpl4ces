@@ -22,6 +22,8 @@
 
 >  **14** ;; american ;; CST 
 
+> questioning c'link
+
 > aromantic / mlm - transmasc / non-binary
 
 > TT / CD at times , check my name !
