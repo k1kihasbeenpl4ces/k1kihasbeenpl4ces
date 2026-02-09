@@ -1,5 +1,5 @@
+![2639](https://github.com/user-attachments/assets/a9e3dd77-c8f3-4e63-809e-bcf32e95b44a)
 
-![399](https://github.com/user-attachments/assets/7aeb4d40-3cbb-488e-9df0-996a0d6a86ac)
 
 
 
@@ -87,6 +87,7 @@
 > 📖 || The Grandmaster of Demonic Cultivation, Heaven Officals Blessing, SVSSS, and more! 
 
 
-![404](https://github.com/user-attachments/assets/2ac753bc-9719-4744-b4e5-2f7e6a661d8e)
+![2640](https://github.com/user-attachments/assets/18554b82-75ec-4b7a-b832-e530da754af8)
 
-> (quote) 
+
+> " Suddenly, he felt that the world had no place for him, despite how large it was. ,, - Yiling Laozu || Wei Wuxian 
