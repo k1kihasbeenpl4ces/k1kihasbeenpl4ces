@@ -18,7 +18,7 @@
 
 
 
-> hio call me **alfred** , **alfie** , **kiki** , **fluixon** , **flux** , *skin names* or *avid* !
+> hio call me **Wei**, **kiki** , **fluixon** , **flux** , *skin names* or *avid* !
 
 >  **14** ;; american ;; CST 
 
@@ -84,8 +84,9 @@
 
 > 🎞️ || The Walking Dead, Stranger Things, Vampires SMP (and some more), Boots, All of us are Dead, All Quiet on the Western Front, 1917, and more.
 
+> 📖 || The Grandmaster of Demonic Cultivation, Heaven Officals Blessing, SVSSS, and more! 
 
 
 ![404](https://github.com/user-attachments/assets/2ac753bc-9719-4744-b4e5-2f7e6a661d8e)
 
-Fluixon was slain by Saparata
+> (quote) 
